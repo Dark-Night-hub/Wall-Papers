@@ -1,4 +1,4 @@
-# Wall-Papers# Wallpapers
+# Wallpapers
 
 # 🖼️ Aesthetic Wallpapers Collection
 
